@@ -8,6 +8,8 @@
 
 • [Português & Matemática](https://drive.google.com/file/d/1-Bvc5u1jU-1p8IXl2iZlYhp26Hh6Nb37/view?usp=drivesdk)
 
+• [História & Física](https://drive.google.com/file/d/1-hDoKee0O1qrH9-aTHzb-oCgFEVmoL5h/view?usp=drivesdk)
+
 
 # 2° EM (Volume 1)
 
@@ -30,4 +32,8 @@
 • [História & Ciência e Geografia](https://drive.google.com/file/d/1-XJuhulauBZy6v0CZNxYFi7zYmXAxaFm/view?usp=drivesdk)
 
 • [Português](https://drive.google.com/file/d/1-dq43U_gVwZssHEf8YSeZABOhSnlQIU8/view?usp=drivesdk)
+
+# 7° EF (Volume 1)
+
+
 
