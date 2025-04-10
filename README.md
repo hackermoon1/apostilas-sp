@@ -29,3 +29,5 @@
 
 • [História & Ciência e Geografia](https://drive.google.com/file/d/1-XJuhulauBZy6v0CZNxYFi7zYmXAxaFm/view?usp=drivesdk)
 
+• [Português](https://drive.google.com/file/d/1-dq43U_gVwZssHEf8YSeZABOhSnlQIU8/view?usp=drivesdk)
+
