@@ -24,3 +24,8 @@
 
 • [História & Ciências e Geografia](https://drive.google.com/file/d/1-R022DP7HBo8vygHDXyZ-ET6-6XsRMsf/view?usp=drivesdk)
 
+
+# 8° EF (Volume 1)
+
+• [História & Ciência e Geografia](https://drive.google.com/file/d/1-XJuhulauBZy6v0CZNxYFi7zYmXAxaFm/view?usp=drivesdk)
+
