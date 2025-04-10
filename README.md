@@ -46,3 +46,5 @@
 
 • [Português](https://drive.google.com/file/d/102ShuD5piSWtLIsfYH0n-wskBli3YJdB/view?usp=drivesdk)
 
+• [História & Ciências e Geografia](https://drive.google.com/file/d/107udT4d8cTtnoGYKsASJI0FLojWvMrHn/view?usp=drivesdk)
+
