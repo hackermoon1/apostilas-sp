@@ -20,4 +20,7 @@
 
 # 9° EF (Volume 1)
 
+• [Português](https://drive.google.com/file/d/1-WjJzc0yL5nE46sGVDo9FkjAhMB_4AAT/view?usp=drivesdk)
+
+• [História & Ciências e Geografia](https://drive.google.com/file/d/1-R022DP7HBo8vygHDXyZ-ET6-6XsRMsf/view?usp=drivesdk)
 
