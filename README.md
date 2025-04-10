@@ -21,6 +21,9 @@
 
 # 1° EM (Volume 1)
 
+• [História & Biologia e Química](https://drive.google.com/file/d/1-hlwX9oT_q52x-YY1ctiD1_ptgUBdVq1/view?usp=drivesdk)
+
+• [Português & Matemática](https://drive.google.com/file/d/1-hlwX9oT_q52x-YY1ctiD1_ptgUBdVq1/view?usp=drivesdk)
 
 ---
 
